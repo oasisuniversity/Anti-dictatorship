@@ -11,6 +11,8 @@
 
 "中國人民要勇敢一點"! 中國男子於上海烏魯木齊路舉花演講 為新疆火災聲援 各地學生紛紛舉白紙示威抗議 規模浩大宛如六四學運重演... https://www.youtube.com/watch?v=oTGX5cNiUQg&ab_channel=%E4%B8%89%E7%AB%8BiNEWS
 
+男向白紙革命喊「反華勢力滲透」　北京群眾怒轟：外網都上不了哪來境外勢力？月球嗎！｜鏡週刊 https://www.youtube.com/watch?v=UZGc9Zf6bII&ab_channel=%E9%8F%A1%E9%80%B1%E5%88%8A
+
 【CDTV】成都望平街等街道民众聚集手举白纸抗议，高喊：“不自由，毋宁死” https://www.youtube.com/watch?v=m_fgq6DEuOs&ab_channel=%E4%B8%AD%E5%9B%BD%E6%95%B0%E5%AD%97%E6%97%B6%E4%BB%A3
 
 上海民眾街頭高喊「習近平下台」，中國多地現反封控抗議－ BBC News 中文 https://www.youtube.com/watch?v=RnFQNC1775M&ab_channel=BBCNews%E4%B8%AD%E6%96%87
