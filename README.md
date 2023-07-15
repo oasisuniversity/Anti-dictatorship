@@ -19,6 +19,8 @@
 
 上海民眾街頭高喊「習近平下台」，中國多地現反封控抗議－ BBC News 中文 https://www.youtube.com/watch?v=RnFQNC1775M&ab_channel=BBCNews%E4%B8%AD%E6%96%87
 
+怕学生加入抗议行动 中国高校纷纷提前放假 https://www.ntdtv.com/gb/2022/11/29/a103586479.html
+
 今年正月初二苏州青年人在商场抗议共匪镇压白纸运动的快闪 https://pincong.rocks/article/54534
 
 成都大运会白纸革命活动召集帖 https://pincong.rocks/article/60847
