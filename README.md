@@ -21,6 +21,8 @@
 
 今年正月初二苏州青年人在商场抗议共匪镇压白纸运动的快闪 https://pincong.rocks/article/54534
 
+成都大运会白纸革命活动召集帖 https://pincong.rocks/article/60847
+
 制造推翻共匪自动播放扬声器 https://pincong.rocks/article/61054
 
 预告：2023年7月28日大运会，上海交通大学门口响应成都抗议行动 https://pincong.rocks/article/60992
