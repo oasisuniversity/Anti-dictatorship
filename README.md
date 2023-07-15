@@ -23,6 +23,8 @@
 
 今年正月初二苏州青年人在商场抗议共匪镇压白纸运动的快闪 https://pincong.rocks/article/54534
 
+2023年端午节在北京大学内有位勇士再次肉身冲塔 https://pincong.rocks/article/60059
+
 成都大运会白纸革命活动召集帖 https://pincong.rocks/article/60847
 
 制造推翻共匪自动播放扬声器 https://pincong.rocks/article/61054
